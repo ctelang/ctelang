@@ -1,5 +1,5 @@
 Hi there 👋
-My name is Chirag and I'm a computer science student from Colorado. Here's some info about me!
+My name is Chirag and I'm a computer science student from Colorado, USA. Here's some info about me!
 
 🌱 Interests:
 
