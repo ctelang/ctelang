@@ -7,7 +7,7 @@ Cloud Security.
 
 Data analytics (AI/ML).
 
-Web development.
+Software development.
 
 YouTube/Twitch.
 
