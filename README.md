@@ -11,4 +11,4 @@ Software development.
 
 YouTube/Twitch.
 
-💬 Reach me by email or LinkedIn! chte3406@colorado.edu | www.linkedin.com/in/chiragtelang
+💬 Reach me by email or LinkedIn! ctelang3@gmail.com | www.linkedin.com/in/chiragtelang
